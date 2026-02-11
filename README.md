@@ -1,3 +1,3 @@
-![498px-The_Manager_of_La_Manchaland_Don_Quixote_Full](https://github.com/user-attachments/assets/dd9e0d58-a538-4176-8a98-8f3751de7be3)
+<img width="1325" height="845" alt="editing26 (1)" src="https://github.com/user-attachments/assets/47297f69-bae3-401c-812f-0d1f4148f846" />
 
-  [strawpage](https://meidemumsancho.straw.page/)                           [atabook](https://meidemumsancho.atabook.org/)
+  [strawpage](https://meidemumsancho.straw.page/)            ~               [atabook](https://meidemumsancho.atabook.org/)
