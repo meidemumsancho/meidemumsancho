@@ -1,3 +1,3 @@
 ## meidemumsancho / README.md
    <div align="center">
-<img width="1325" height="845" alt="editing26 (3)" src="https://github.com/user-attachments/assets/34b4e94b-409f-4721-9f75-b6ded4f98c11" />
+<img width="1325" height="845" alt="editing26 (3)" src="https://github.com/user-attachments/assets/1a330dbd-a308-4744-9164-1a56ae8b1307" />
